@@ -1,5 +1,5 @@
 ---
-title: Sattva
+title: Satva
 date: 2020-07-27T14:03:12.094Z
 published: true
 tags:

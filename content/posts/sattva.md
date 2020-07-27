@@ -1,6 +1,6 @@
 ---
 title: Satva
-date: 2020-07-27T14:03:12.094Z
+date: 2020-07-26T11:03:00.000Z
 published: true
 tags:
   - Sattva

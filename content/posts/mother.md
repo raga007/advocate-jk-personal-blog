@@ -1,37 +1,34 @@
 ---
-title: Mother
+title: Pettraldhan annaiya
 date: 2020-07-25T14:11:00.000Z
 published: true
-tags:
-  - Kavitha
-  - Amma
+tags: []
 cover_image: ../../static/images/uploads/amma_pic.jpg
-description: Every night I came through the face of satya test mudaliar shop. In
-  the cruelty of kathiri heat, two extra Jill beer is one side of eating beer.
-  On the other side of our man's side, looking at the other side of our man's
-  neighbor's side. In the midst of this, like a lizard, like a lizard that was
-  stuck in the door, for a five rupees al-pa pet, I went to sleep 100 kg of
-  corn, and my spine was broken with the sound of rain.
+description: >-
+  பெற்றால்தான் அன்னையா...
+
+
+  அன்றிரவு எனக்கு சத்யசோதனை முதலியார் கடை ஷண்முகம் மூலம் வந்தது. கத்திரி வெயில் கொடுமையில் ரெண்டு எக்ஸ்ட்ரா ஜில் பீர் சாப்பிட்டதின் மப்பு ஒரு பக்கம். எங்கள் மேன்ஷனின் பக்கத்து வீட்டு பருவச் சிட்டு வாசலில் பத்து பாத்திரம் தேய்த்துக்கொண்டே ஓரக்கண்ணால் பார்த்துக்கொண்டிருந்தின் கிக்கு இன்னொரு பக்கம். இதன் நடுவே, கதவிடுக்கில் மாட்டிக்கொண்ட பல்லி போல, என் ஐந்தாம் புலன் பிதுங்கி நிற்க, ஒரு ஐந்து ரூபாய் அல்ப பெட்டுக்காக, 100கிலோ சோள மூட்டையைத் தூக்கப்போய் , மளுக் என்ற சத்தத்தோடு என் முதுகெலும்பு முறிந்தது.
 ---
-Is it mother only if you get it...
+பெற்றால்தான் அன்னையா...
 
-Every night I came through the face of satya test mudaliar shop. In the cruelty of kathiri heat, two extra Jill beer is one side of eating beer. On the other side of our man's side, looking at the other side of our man's neighbor's side. In the midst of this, like a lizard, like a lizard that was stuck in the door, for a five rupees al-pa pet, I went to sleep 100 kg of corn, and my spine was broken with the sound of rain.
+அன்றிரவு எனக்கு சத்யசோதனை முதலியார் கடை ஷண்முகம் மூலம் வந்தது. கத்திரி வெயில் கொடுமையில் ரெண்டு எக்ஸ்ட்ரா ஜில் பீர் சாப்பிட்டதின் மப்பு ஒரு பக்கம். எங்கள் மேன்ஷனின் பக்கத்து வீட்டு பருவச் சிட்டு வாசலில் பத்து பாத்திரம் தேய்த்துக்கொண்டே ஓரக்கண்ணால் பார்த்துக்கொண்டிருந்தின் கிக்கு இன்னொரு பக்கம். இதன் நடுவே, கதவிடுக்கில் மாட்டிக்கொண்ட பல்லி போல, என் ஐந்தாம் புலன் பிதுங்கி நிற்க, ஒரு ஐந்து ரூபாய் அல்ப பெட்டுக்காக, 100கிலோ சோள மூட்டையைத் தூக்கப்போய் , மளுக் என்ற சத்தத்தோடு என் முதுகெலும்பு முறிந்தது.
 
-Can't wake up the next morning. Vasu, " nothing dude. The double omelette was the reason to eat valli mesla yesterday and bought 10 gasex. The whole room is full of hydrogen peroxail. Even infant couldn't move, this is not a cass problem, after knowing it was disc prolapse, I came to chennai anyway.
+மறுநாள் காலையில் எழுந்திருக்க முடியவில்லை. வாசு, " ஒண்ணுமில்ல மச்சி. நேத்து வள்ளி மெஸ்ல சாப்பிட டபுள் ஆம்லெட்தான்டா காரணம் " என்று டயக்னாஸிஸ் செய்து 10 GASEX வாங்கிக் கொடுத்தான். ரூம் மொத்தமும் ஹைட்ரஜன்பெராக்சஸைடால் நிறைந்ததுதான் மிச்சம். இஞ்சுகூட நகர முடியவில்லை, இது காஸ் ப்ராப்ளம் இல்லை, டிஸ்க் ப்ரொலாப்ஸ் எனத் தெரிந்ததும், கார் வைத்துக்கொண்டு எப்படியோ சென்னை வந்து சேர்ந்தேன்.
 
-How much treatment. How much prayer. I became admit to operations in cover hospital because it does not benefit of rainbow color pills, heating pad therapy, physiotherapy, traction, etc. In the morning, cat hairs were shaved all night for the morning, and the gospel of God came through the nurse. I will tell you a doctor, " no need for spine operation at this age Go and see him, he gave the address of dr.i.s.shanmugam A hope that is legal. In Case, what happened with one Shawn face will happen only by another shun face???
+எவ்வளவு வைத்தியம். எவ்வளவு பிரார்த்தனை. வானவில் கலர் மாத்திரைகள், ஹீட்டிங் பேட் தெரபி, பிஸியோதெரபி, ட்ராக்ட்ஷன், என்று எதுக்கும் பலனில்லாததால், கவர்மென்ட் ஆஸ்பத்திரியில் ஆபரேஷனுக்கு அட்மிட் ஆனேன். விடியற்காலையில் கடாவெட்டுக்காக முன்னிரவு உடம்பு முழுவதும் பூனைமுடிகள் சரைக்கப்பட்டு, பரிதாபமாய்க் கிடந்த எனக்கு, கடவுளின் நற்செய்தி அந்த நர்ஸ் மூலம் வந்தது. "இந்த வயசுல முதுகுத்தண்டு ஆபரேஷன் வேணாம் கண்ணு" என்று என்னை " நான் ஒரு டாக்டர சொல்றேன். அவரைப் போய் பாத்துட்டு அப்புறமா ஆபரேஷன் பண்ணிக்கோப்பா" என்று Dr.I.S.Shanmugam அவர்களின் அட்ரஸ் தந்தார். சட்டென்று ஒரு நம்பிக்கை. ஒருவேளை, ஒரு ஷண்முகத்தால் நேர்ந்தது இன்னொரு ஷண்முகத்தால்தான் தீருமோ???
 
-As a night, he escaped from there, and the next day the doctor was his wife. Saw at the city clinic. One Basket of anger, lakhs of basket talent, one amazing doctor. He dropped me on the study stage and put a needle on the split disc side. Then he took a coat of the magic, and put a blaster of Paris banner from Mari to the waist. After 21 days later, come back to control He said we can do all the work except for taking bath He told him to keep lying as much as possible. The body is inside the blaster tower, but the confidence is at the feet of the doctor.
+இரவோடிரவாக, எழிலன் தலைமையில் அங்கிருந்து தப்பித்து, மறுநாள் டாக்டரை அவரது தி.நகர் கிளினிக்கில் பார்த்தேன். ஒரு கூடை கோவமும், லட்சம் கூடை திறமையும், ஒன்றான அற்புத வைத்தியர். என்னை ஆய்வு மேடையில் ஒருக்களித்துப் படுக்கவைத்து, பிளந்த டிஸ்க் பக்கமாக ஒரு ஊசி போட்டார். பின்னர், அந்த மாயக்கையால் ஒரு சொடக்கு எடுத்து நிமிரவைத்து, மாரிலிருந்து இடுப்புவரை ஒரு பிளாஸ்டர் ஆப் பாரிஸ் பேன்டேஜ் போட்டார். 21 நாள் கழித்து, கட்டுப்பிரிக்கத்திரும்பி வா என்றார். குளிப்பதைத் தவிர எல்லா வேலைகளும் செய்யலாம் என்றார். முடிந்தவரை படுத்துக்கொண்டு இருக்கச் சொன்னார். உடம்பு அந்த பிளாஸ்டர் டரம்முக்குள், உள நம்பிக்கையோ அந்த டாக்டரின் பாதத்தில்.
 
-When I came home, a yellow color cover post was found at the door. If you read divided, there was a bisical test for the central excess inspector work in two days, Madurai. 8 KM CYCLING AND 4 km fast walking. Don't know whether to cry or laugh.
+வீட்டுக்கு வந்தபோது, மஞ்சள் கலர் கவர்மென்ட் தபால் ஒன்று வாசலில் கிடந்தது. பிரித்துப்படித்தால், இன்னும் பன்னிரெண்டு நாளில் சென்ட்ரல் எக்ஸைஸ் இன்ஸ்பெக்டர் பணிக்கான, பிஸிக்கல் டெஸ்ட், மதுரையில் என்றிருந்தது. 8km சைக்ளிங் மற்றும் 4km பாஸ்ட் வாக்கிங். அழுவதா சிரிப்பதா என்று தெரியவில்லை.
 
-When he told the doctor, he asked if I get an extension I said it is very difficult. He said, "worry, let's do it", That day, he doesn't seem to be my doctor. Kalki looked like an avatar. When the day of departure was near, there was a stranger movie in me, and here is the horror that the horror, and a stranger movie was stle
+டாக்டரிடம் விஷயத்தைச் சொன்னபோது , எக்ஸ்ட்டென்ஷன் கிடைக்குமா என்று கேட்டார். ரொம்பக் கஷ்டம் என்றேன். "கவலைப்படத்தப்பா, பண்ணிடலாம்", என்றார். அன்று, அவர் எனக்கு டாக்டராக தெரியவில்லை. கல்கி அவதாரமாகத் தெரிந்தார். கிளம்பும் நாள் நெருங்க நெருங்க , அந்த பிளாஸ்டர் தரும் அரிப்பு, இதோடு எப்படி என்கிற திகில், டெஸ்டில் தவறிவிடுவோமோ என்கிற கிலேசம், என்று என்னுள் ஒரு அந்நியன் படமே அரங்கேறிக் கொண்டிருந்தது.
 
-Reserve is not available in pandian express as the end of may. I went early and lay down where my dad had made a towel to bed and prepared for me to bed. Perfect crowd on the train. About 30 people around me were sitting in that place and sat down. Then in the crowd, a mother with a flower basket said to me, " why do you not know? We are thinking that this name is difficult. You stay lying down. She woke me up I also called that was right. Woke up hard and sat on a side.
+மே மாதக்கடைசி என்பதால் பாண்டியன் எக்ஸ்பிரஸில் ரிசர்வேஷன் கிடைக்கவில்லை. முன்னமே போய் அப்பா அன்ரிஸர்வ்ட் கம்பார்ட்மெண்டில் ஒரு துண்டு போட்டு எனக்கு படுக்க இடம் ரெடி பண்ணியிருந்த இடத்தில நான் போய்ப் படுத்துக்கொண்டேன். இரயிலில் அன்று சரியான கூட்டம். என்னைச் சுற்றி சுமார் 30 பேர் அந்த இடத்தில், இடித்துப்பிடித்துக்கொண்டு உட்கார்ந்திருந்தனர். அப்போது அந்தக் கூட்டத்தில், பூக்கூடையுடன் ஒரு அம்மா, என்னை பார்த்து, " ஏண்டா, கசுமாலம் அறிவில்ல உனக்கு? இத்தினி பேரு கஸ்டப்பட்டுக்கினு இருக்கோம். நீ ஹாய்யா படுத்துகினு இருக்க. எந்திரிடா" என என்னை எழுப்பி விட்டாள். எனக்கும் அது மிகச்சரி எனப்பட்டது. கஷ்டப்பட்டு எழுந்து ஒரு ஓரமாக உட்கார்ந்துக் கொண்டேன்.
 
-When Tambaram crossed tambaram, when I woke up to go to rest room, my blaster drum was thrown down to the mother. To hear " what happened brother, what happened I told the story. What happened next I was just unexpected. She made me a place for her eyes," and she said, King, forgive me without knowing the heat," but she made me a place and spread her bed with her clothes. Not just that. Since that apartment fan was not roaming, the mother came to me with her saree without sleeping.
+தாம்பரம் தாண்டியவுடன், ரெஸ்ட் ரூம் போக எழுந்தபோது, அந்த பூக்காரம்மா மேல் என் பிளாஸ்டர் ட்ரம் இடிபட, அந்தம்மாவிற்குத் தூக்கிவாரிப்போட்டது. "என்னப்பா தம்பி, என்ன ஆச்சு" என கேட்க, நான் கதையைச் சொன்னேன்.அடுத்து நடந்தது நான் சற்றும் எதிர்பாராதது. கண்ணில் நீர் முட்ட அந்த பூக்காரம்மா," ராஜா, என்ன மன்னிச்சுடு, வெவரம் தெரியாம திட்டிப்புட்டேன்" என்று சொன்னதோடு மட்டுமல்லாமல், எனக்கு இடம் ஏற்படுத்தி, தன் துணியால் படுக்கை விரித்துப் படுக்க வைத்தாள். அது மட்டுமல்ல. அந்த கம்பார்ட்மெண்ட் fan சுத்தாததால் ,மதுரை வரை, அந்தத் தாய், தூங்காமல் தன் புடவையால் எனக்கு விசிறி வந்தாள்.
 
-The train journey ended in madurai. After that the journey of my life has come a long distance. But as long as I remember, my heart will not forget that mother...\
-I am making this post for crores of mothers like this.
+அந்த ரயில் பயணம் மதுரையில் முடிவடைந்தது. அதற்குப் பிறகு என் வாழ்க்கை எனும் பயணம் நெடுந்தூரம் வந்துவிட்டது. ஆனால், என் நினைவுள்ளவரை என் மனம் அந்தத் தாயை மறக்காது...\
+இது போன்ற கோடானு கோடி தாயுள்ளங்களுக்கு இந்தப்பதிவை காணிக்கையாக்குகிறேன்.
 
 Happy Mother 's Day...

@@ -1,34 +1,34 @@
 ---
-title: Satva
+title: சத்வா
 date: 2020-07-26T11:03:00.000Z
 published: true
 tags:
   - Sattva
 cover_image: ../../static/images/uploads/sattva_image.jpg
 description: >-
-  Satva.
+  சத்வா.
 
 
-  Face: for many people like my bestie, theorem, friends, know, a mystery of how I chose such a place. This is not a lifetime achievement but definitely a life test. So writing... as part of length...
+  முகவுரை: என் உற்றம், சுற்றம், நண்பர்கள், தெரிந்தவர்கள் போன்ற பலபேருக்கு, நான் எப்படி இப்படி ஒரு இடத்தைத்தேர்ந்தெடுத்து புலம்பெயர்ந்தேன் என்பது புரியாத புதிர். இது ஒன்றும் வாழ்நாள் சாதனை அல்ல ஆனால் கண்டிப்பாக ஒரு வாழ்வியல் பரிசோதனை. அதனால் எழுதுகிறேன்...நீளம்கருதி பகுதிகளாய்...
 ---
-Satva.
+சத்வா.
 
-Face: for many people like my bestie, theorem, friends, know, a mystery of how I chose such a place. This is not a lifetime achievement but definitely a life test. So writing... as part of length...
+முகவுரை: என் உற்றம், சுற்றம், நண்பர்கள், தெரிந்தவர்கள் போன்ற பலபேருக்கு, நான் எப்படி இப்படி ஒரு இடத்தைத்தேர்ந்தெடுத்து புலம்பெயர்ந்தேன் என்பது புரியாத புதிர். இது ஒன்றும் வாழ்நாள் சாதனை அல்ல ஆனால் கண்டிப்பாக ஒரு வாழ்வியல் பரிசோதனை. அதனால் எழுதுகிறேன்...நீளம்கருதி பகுதிகளாய்...
 
-Nanganallur - Chennai's thanjavur, who understands that we should not live in the temple in the temple of the temple of the temple. When Chennai was drowned in the flood in 2015, it is believed that the 32 feet anjaneya was saved by the nanganjanev hills. In 1992, Kali's late mr. In the benefit of aramani, from the day when we built a house called " pleasure everything will climb up in our lives. After our Swami Associates Bun Branch, flight travel is essential from dance. Three minutes from nanganallur, Chennai airport. The moment when I cry on the airline staff of the airline staff final boarding, I will leave home and hit their age.
+கோயிலில்லா ஊரில் குடியிருக்க வேண்டாமென்பதை, தெருவென தவறாக புரிந்துகொண்டு, வீதிக்கொரு கோயில்கொண்ட நங்கநல்லூர் - சென்னையின் தஞ்சாவூர். 2015ல் சென்னையே வெள்ளத்தில் மூழ்கியபோது, அந்த 32அடி ஆஞ்சநேயனே சஞ்ஜீவினி மலையாய் நங்கநல்லூரை தூக்கி காப்பாற்றினாரென்பது பலரது நம்பிக்கை. 1992ல், கலிகாலவள்ளல் லேட் திரு. ரமணி அவர்களின் உபயத்தில், நாங்கள் "சுகம்" எனும் வீடுகட்டி குடியேறிய நாள் முதல் , எங்கள் வாழ்விலே அனைத்தும் ஏறுமுகம். எங்கள் ஸ்வாமி அசோசியேட்ஸ் பன்கிளை அமைப்பானபின், விமானப்பயணமென்பது ஆடம்பரத்திலிருந்து அத்தியாவசியமானது. நங்கநல்லூர், Chennai விமானநிலையத்திலிருந்து மூன்று நிமிஷம். பலநேரம் "ஜெய்குமார் சீத்தாராமன்" என்று airline staff பைனல் போர்டிங் காலில் கதறும் தருணம், வீட்டை விட்டு கிளம்பி அவர்கள் வயத்தெரிச்சலை கொட்டிக்கொள்வேன்.
 
-From the airport three minutes from the reservt forest border, from the "Satva" to leave the neighbors of the airport, to live with the neighbors, to live with the neighbors. No one ever thought we would migrate one day. But we named it.
-
-Mr. In 2003 Panneer Selvam has become familiar with me. Even though he came to me to conduct a company Central Case, we had a strong friendship among us. Friend who respects friendship. In the country where a wonderful logic. I argued his case in tribunal and called Coimbatore to give him a treat. I came to Coimbatore on may 29th may 29th, saying that I am coming to court holly days. He made me pick-up at the airport and he left the car to the small vani falls in about 50 km from the airport. I don't understand anything. And when he came to the place, he took a plastic cake from his car and gave it to his driver and brought water from the spring. As soon as the driver went, he said, " jk, small water is the second sweetest water of Asia, that's why I asked him, " will this water come to Coimbatore He said, " coming. But whatever it may be, there will be no taste directly from the falls. This is the right respect for the beauty that you have argue and this 21 year single malt.... it was a little bit of it was a little bit.... mashed.
+விமானநிலையத்திலிருந்து மூன்று நிமிடத்தூரத்திலிருந்த "சுக"த்திலிருந்து ரிசெர்வ்ட் பாரஸ்ட் எல்லையிலிருந்து மூன்றுநிமிடத்தூரத்திலமைந்த "சத்வா"விற்கு, 25 வருடம் பழகிய பக்கத்துவீட்டுக்காரர்களை விட்டுவிட்டு பழக்கமில்லா பக்கத்துக்காட்டுகாரர்களோடு சேர்ந்து வாழ, நெய்தலிலிருந்து குறிஞ்சிக்கு ஒரு நாள் புலம் பெயர்வோம் என்று யாரும் கனவிலும் நினைத்ததில்லை. ஆனால் பெயர்ந்தோம்.
 
 ![Satva](../../static/images/uploads/sattva_logo.jpg "Satva")
 
-When I came from Chennai knife to Coimbatore, the feeling of aircooler all over the town. On the way to this falls, I realized that the weather has turned into a different way to the city of Allan. And when he bought the water that the driver had brought from the triveni sangam, and left him inside and left him alone, suddenly started a rain as a flower.
+2003ல் திரு. பன்னீர்செல்வம் எனக்கு பழக்கமானார். அவர் கம்பெனியின் சென்ட்ரல் Caseஐ நடத்த என்னிடம் வந்தாலும் எங்களுக்குள் ஒரு பலமான நட்பு ஏற்பட்டது. நட்பைக்கற்பென மதிக்கும் நண்பர். அருமையாக தர்க்கம் செய்யக்கூடிய நாட்டுவக்கில். நான் Tribunalலில் அவர் வழக்கை வாதாடியது அவருக்கு மிகவும் பிடித்துப்போக, ஒரு ட்ரீட் கொடுக்க கோவைக்கு அழைத்தார். மே மாதம் கோர்ட் ஹாலிடேய்ஸில் வருகிறேனென்றுசொல்லி, மே 29th கோவைக்கு வந்திறங்கினேன். விமான நிலையத்தில் என்னை pick-up செய்துகொண்டு அவர், ஏர்போர்ட்டிலிருந்து சுமார் 50 Kmல் உள்ள சிறுவாணி fallsக்கு காரை விட்டார். எனக்கோ ஒன்றும் புரியவில்லை. அந்த இடம் வந்தவுடன், அவர் தன் காரிலிருந்த ஒரு பிளாஸ்டிக் கேனை எடுத்து தன் driverரிடம் தந்து, அருவியிலிருந்து தண்ணீர் பிடித்து வரச்சொன்னார். டிரைவர் சென்றவுடன், "Jk , சிறுவாணித்தண்ணீர் asiaவின் second ஸ்வீட்டெஸ்ட் வாட்டர், அதான்" என்றார். அதற்கு நான், "இந்தத் தண்ணீர் கோயம்புத்தூருக்கு வராதா " என்று கேட்டேன். அதற்கு அவர், "வரும். ஆனால் என்ன இருந்தாலும், அருவிலிருந்து நேரடியாக இருக்கும் சுவை இருக்காது. நீங்கள் argue பண்ணிய அழகுக்கும், இந்த 21 year single malt க்கும் இதுவே சரியான மரியாதை" என்றபோது எனக்குஅது கொஞ்சம் டூ....மச்சாகபட்டது.
 
-For me from a 42 degrees cooker, I said, " Paneer, let's get down for a minute That Year Southwest Monsoon was soon, the golden rain of Southwest Monsoon was drizzling. That Miracle happened when I looked at the opposite side.
+சென்னை கத்திரி வெயிலில் இருந்து கோவைக்கு வந்திறங்கியபோதே ஊர்முழுவதும் aircooler போட்ட உணர்வு ஏற்பட்டது. அதிலும், இந்த அருவிக்கு வரும் வழியில், ஆலந்துறை எனும் ஊரைத்தாண்டியதிலிருந்து, வானிலை டோட்டலாக வேறுநிலைக்கு மாறியதை உணர்ந்தேன். டிரைவர் கொண்டுவந்த அந்த தண்ணீரை அவர் திரிவேணி சங்கமத்திலிருந்து எடுத்த புனிதஜலத்தைப்போல் பயபக்தியோடு வாங்கி உள்ளே வைத்துவிட்டு கிளம்பயத்தனித்தபோது, திடீரென பூத்தூறலாய் ஒரு மழைச்சாரல் ஆரம்பித்தது.
 
-The Nature of the young virgin of the young virgin appeared as a grand rainbow. It turned into sugarcane and became a deep into me. The moment when I had a drink, the seed fell into my heart, wherever my life journey started, wherever my life journey continues, the seed fell into my mind.
+42டிகிரி குக்கர்லிருந்து வந்திருந்த எனக்கு, ஏவாளுக்கு ஆப்பிளைவிட அதிக டெம்ப்ட்டேஷனை ஏற்படுத்தியதால், "பன்னீர், ஒரு நிமிஷம் இறங்கி பாக்கலாம்" என்றேன். அந்த வருடம் southwest monsoon சீக்கிரமாக செட்டாகியிருந்ததால் வந்த தென்மேற்கு பருவமழையின் பொன்தூறலது. எதிர்பக்கம் பார்த்தபோது அந்த அற்புதம் நிகழ்ந்தது.
 
-Then I said to him, "how would it be if a house of a house of kitty in this place and he broke the lady to my dream," it will be stupid
+இயற்க்கையென்னும் இளையகன்னியின் கலம்காரி முந்தானை ஒரு பிரம்மாண்ட வானவில்லாய் தோன்றியது. அது கரும்புவில்லாய் மாறி என்னைநோக்கி ஆழமாக ஒரு மன்மதபாணம் விட்டது. பாணம் தைத்த அந்தக்கணம், என் வாழ்க்கைப்பயணம் எங்கு தொடங்கியிருந்தாலும், எங்கு தொடர்ந்திருந்தாலும், இங்குதான் முடிவுறவேண்டும் என்ற எண்ணவிதை ஆழமாக என் மனதில் விழுந்தது.
 
-Will continue...
+அப்போது நான், "பன்னீர், இந்த இடத்துல ஒரு வீடுகிட்டிகிட்டு குடிவந்தா எப்படியிருக்கும்" என்று காதலால் கசிந்துருகி கேட்டதற்கு, உடனடியா அவர், "படுமுட்டாள்தனமா இருக்கும்" என்று என் கனவுக்குமிழியை உடைத்தார்.
+
+தொடரும்...

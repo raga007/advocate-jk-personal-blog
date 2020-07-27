@@ -3,7 +3,8 @@ title: Mother
 date: 2020-07-25T14:11:00.000Z
 published: true
 tags:
-  - tag
+  - Kavitha
+  - Amma
 cover_image: ../../static/images/uploads/amma_pic.jpg
 description: Every night I came through the face of satya test mudaliar shop. In
   the cruelty of kathiri heat, two extra Jill beer is one side of eating beer.
